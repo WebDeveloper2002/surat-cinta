@@ -1,3 +1,3 @@
 # klik link dibwah ini yah😎
 
-[Url](https://imin-code.github.io/surat-cinta/)
+[Url](https://imindev.github.io/surat-cinta/)
